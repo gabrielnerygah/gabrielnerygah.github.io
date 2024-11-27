@@ -1,1 +1,0 @@
-# gabrielnerygah.github.io
